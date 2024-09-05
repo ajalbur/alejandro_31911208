@@ -1,2 +1,0 @@
-# alejandro_31911208
-TAREA  1 PROGRAMACION
